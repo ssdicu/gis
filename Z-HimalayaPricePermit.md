@@ -1,3 +1,6 @@
+Of course. Here is a story about the price of a Himalayan climbing permit.
+
+***
 
 ### The Summit Price
 
