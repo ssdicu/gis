@@ -1,7 +1,3 @@
-Of course. Here is a story about the price of a Himalayan climbing permit.
-
-***
-
 ### The Summit Price
 
 The number stared back at Arjun from the government website, cold and digital: $11,000. Not for a car, or a house, or a lifetime of savings. This was the price for a single piece of paper. A permit. Permission for a team of seven foreigners to try to stand on the summit of his ancestral mountain.
